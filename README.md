@@ -1,0 +1,1 @@
+# SYADINAZUFARIN_H1D021077_IonicVueFirebase
